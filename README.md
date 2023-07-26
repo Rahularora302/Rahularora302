@@ -1,4 +1,4 @@
-I'm an enthusiastic front-end developer with a strong passion for coding and an insatiable desire for continuous learning. I excel in problem-solving, finding creative and efficient solutions to challenges. As a founding team member of Needleton, I have been instrumental in shaping the project. Proficient in my skills, I am dedicated to crafting user-friendly and visually captivating web experiences.
+I'm an enthusiastic front-end developer with a strong passion for coding and an insatiable desire for continuous learning. I excel in problem-solving, finding creative and efficient solutions to challenges. As a founding team member of Needleton, a fashion page on instagram, I have been instrumental in shaping the project. Proficient in my skills, I am dedicated to crafting user-friendly and visually captivating web experiences.
 💻 Open to collaboration and excited to contribute to impactful projects.
 📫 Reach me at namayarora302@gmail.com
 
