@@ -1,5 +1,5 @@
 Hello, I'm Rahul Arora!
-🚀 Web Developer | Passionate about creating innovative web applications.
+🚀 Frontened Web Developer | Passionate about creating innovative web applications and enjoy problem solving.
 💡 Constantly learning and exploring new technologies to stay ahead in the ever-evolving tech landscape.
 💻 Open to collaboration and excited to contribute to impactful projects.
 📫 Reach me at namayarora302@gmail.com
